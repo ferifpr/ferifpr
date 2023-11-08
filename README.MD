@@ -1,4 +1,4 @@
-# Fernanda Kandiago  👀
+# Fernanda Kandiago  
  ## *3TI*
 
 
